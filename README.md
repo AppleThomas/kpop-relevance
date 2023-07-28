@@ -1,1 +1,1 @@
-# kpop-relavance
+# kpop-relevance
